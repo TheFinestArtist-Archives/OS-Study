@@ -24,5 +24,5 @@
 
 ## Contact
 **[TheFinestArtist](contact@thefinestartist.com)**  
-**[Panarch](taehoon.moon@outlook.com)**
+**[Panarch](taehoon.moon@outlook.com)**  
 **[Uptown](taehoon.moon@outlook.com)**
